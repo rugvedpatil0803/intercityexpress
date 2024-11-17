@@ -165,7 +165,7 @@ Some of the Settings are like:
 
 ## Contact
 
-For any questions or feedback, please contact me at vickspanda1@gmail.com.
+For any questions or feedback, please contact me at rugved.patil0803@gmail.com.
 
 
 Thank you for using Intercity Express! We hope you have a smooth and enjoyable travel booking experience.
